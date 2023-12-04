@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Alex-herobrine
-- 👀 I’m interested in coding, space, basketball, mountain biking, and lots more.
+- 👀 I’m interested in coding, space, fighter planes, skiing, and lots more.
 - 🌱 I’m currently learning on Whitehat jr
 - 💞️ I’m looking to doing C++ code
 - 📫 How to reach me: My email adress, theuniverseofalexoprea@gmail.com
